@@ -9,3 +9,11 @@ Rhoda Broughton’s __Twilight Stories__ was first published as __Tales for Chri
 Herbert van Thal, who edited the 1947 edition of __Twilight Stories__ wrote in his introduction:
 
 > Twilight Stories should excite the most blasé follower of the tale that should be read ‘last thing at night’…Miss Broughton was clearly a forerunner of M R James.
+
+The stories included are:
+
+- The Truth, the Whole Truth and Nothing But the Truth
+- The Man with the Nose
+- Behold it was a Dream
+- Poor Pretty Bobby
+- Under the Cloak
