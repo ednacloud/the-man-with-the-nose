@@ -21,3 +21,5 @@ The stories included are:
 ## Rhoda Broughton
 
 Rhoda Broughton was born in Denbigh, North Wales, in 1840, the youngest daughter of the Reverend Delves Broughton. Her father was given the living of Broughton, Staffordshire, and she was brought up in an Elizabethan manor house, where he gave her a classical education. On his death, Rhoda Broughton went to live with her sisters in Surbiton, subsequently following one of them to Denbighshire.
+
+Her first novel, Not Wisely But too Well, appeared in 1867, having been previously serialised in the Dublin University Magazine, edited by her uncle, Sheridan Le Fanu. Cometh Up as a Flower was published in the same year, another novel with a strong, transgressive heroine. Although often referred to as a sensation novelist, her work is notable for being slightly risqué, rather than sensational. Anthony Trollope commented in his Autobiography that “she has made her ladies do and say things which ladies would not do and say.”
