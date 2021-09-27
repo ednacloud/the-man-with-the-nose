@@ -17,3 +17,7 @@ The stories included are:
 - Behold it was a Dream
 - Poor Pretty Bobby
 - Under the Cloak
+
+## Rhoda Broughton
+
+Rhoda Broughton was born in Denbigh, North Wales, in 1840, the youngest daughter of the Reverend Delves Broughton. Her father was given the living of Broughton, Staffordshire, and she was brought up in an Elizabethan manor house, where he gave her a classical education. On his death, Rhoda Broughton went to live with her sisters in Surbiton, subsequently following one of them to Denbighshire.
