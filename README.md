@@ -25,3 +25,5 @@ Rhoda Broughton was born in Denbigh, North Wales, in 1840, the youngest daughter
 Her first novel, Not Wisely But too Well, appeared in 1867, having been previously serialised in the Dublin University Magazine, edited by her uncle, Sheridan Le Fanu. Cometh Up as a Flower was published in the same year, another novel with a strong, transgressive heroine. Although often referred to as a sensation novelist, her work is notable for being slightly risqué, rather than sensational. Anthony Trollope commented in his Autobiography that “she has made her ladies do and say things which ladies would not do and say.”
 
 In later life Rhoda moved to Oxford, much to the consternation of the local residents, who thought she was that infamous Miss Braddon. Undeterred, she established herself as something of a society wit. Oscar Wilde is said to have felt intimidated by her, and she apparently had a voice that could be heard from the other side of Harrod’s Food Hall.
+
+> This is a comment from EC ...
